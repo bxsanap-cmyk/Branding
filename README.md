@@ -1,2 +1,2 @@
 # Branding
-Uploaded Branded Kit
+Uploaded Branding Kit
